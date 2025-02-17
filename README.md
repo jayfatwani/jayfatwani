@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Dance and App Developing
 - 📫 How to reach me message me on instagram - @jayfatwanii or mail us on smartflexipro@gmail.com 
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: 
+ 
 
 <!---
 jayfatwani/jayfatwani is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
